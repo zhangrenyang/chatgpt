@@ -20,11 +20,13 @@
 **English**
 
 ## 🗣️ Communication
-![](https://static.zhufengpeixun.com/InBrhhxaafy9067834_1692965399801.jpg)
-- You are welcome to join QQ group
- the QQ discussion group for discussions
-- ChatGPT【724138520】 [Click to join](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=meREBUj-zAqgRqNEAvdDOI-PB4yUIvp_&authKey=CKwikgmiZKyRlxADmsn22nwHQawfTiseShOK2qzfEh5j%2F3eGC3dd70D60ZH0IKE6&noverify=0&group_code=724138520)
-- Or join by scanning the QQ QR code<br/>
+ <img src="https://static.zhufengpeixun.com/InBrhhxaafy9067834_1692965399801.jpg" height="64">
+
+Group number 【724138520】 
+
+[Click to join](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=meREBUj-zAqgRqNEAvdDOI-PB4yUIvp_&authKey=CKwikgmiZKyRlxADmsn22nwHQawfTiseShOK2qzfEh5j%2F3eGC3dd70D60ZH0IKE6&noverify=0&group_code=724138520)
+
+Or join by scanning the QQ QR code<br/>
 <img src="https://gptlesson1.oss-cn-beijing.aliyuncs.com/group2.png" height="128">
 
 ## Features
@@ -310,13 +312,13 @@ GPT-4是一个大型的多模型（接受文本输入并发出文本输出，将
 
 
 ## 🗣️ 交流
-- 欢迎加入QQ群
+ <img src="https://static.zhufengpeixun.com/InBrhhxaafy9067834_1692965399801.jpg" height="64">
 
-![](https://static.zhufengpeixun.com/InBrhhxaafy9067834_1692965399801.jpg)
+ QQ群号【724138520】 
 
-QQ讨论群进行讨论
-- ChatGPT群【724138520】 [点击加入](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=meREBUj-zAqgRqNEAvdDOI-PB4yUIvp_&authKey=CKwikgmiZKyRlxADmsn22nwHQawfTiseShOK2qzfEh5j%2F3eGC3dd70D60ZH0IKE6&noverify=0&group_code=724138520)
-- 或通过扫描QQ二维码加入<br/>
+ [点击加入](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=meREBUj-zAqgRqNEAvdDOI-PB4yUIvp_&authKey=CKwikgmiZKyRlxADmsn22nwHQawfTiseShOK2qzfEh5j%2F3eGC3dd70D60ZH0IKE6&noverify=0&group_code=724138520)
+
+ 或通过扫描QQ二维码加入<br/>
 <img src="https://gptlesson1.oss-cn-beijing.aliyuncs.com/group2.png" height="128">
 
 
@@ -461,10 +463,11 @@ GPT-4是一個大型的多模型（接受文本輸入並發出文本輸出，將
 
 
 ## 🗣️ 交流
-- 歡迎加入
+ <img src="https://static.zhufengpeixun.com/InBrhhxaafy9067834_1692965399801.jpg" height="64">
 
-QQ討論群進行討薦
-- ChatGPT群【724138520】 [點擊加入](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=meREBUj-zAqgRqNEAvandicienGčennebratedraeatenėarėos_cynan-kelerandenbejo_frantenlizinandezellenefrapienligrannebrisandandénarăvanédgèraraenPwenland_DGandanirofrandrancultenmangrad)orin
+QQ討論群【724138520】 
 
-- 或通過掃描QQ二維碼加入<br/>
+[點擊加入](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=meREBUj-zAqgRqNEAvandicienGčennebratedraeatenėarėos_cynan-kelerandenbejo_frantenlizinandezellenefrapienligrannebrisandandénarăvanédgèraraenPwenland_DGandanirofrandrancultenmangrad)
+
+或通過掃描QQ二維碼加入<br/>
 <img src="https://gptlesson1.oss-cn-beijing.aliyuncs.com/group2.png" height="128">
